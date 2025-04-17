@@ -40,9 +40,9 @@ Now that you know the best **Kartra coupons & discounts** available, here’s ho
 3. **Apply the Coupon**: During the checkout process, you’ll see a field where you can enter your **Kartra coupon code**. Be sure to enter the code **Markin30**, **20% OFF**, or any other promo code you want to use.
 4. **Enjoy Your Discount**: Once you’ve applied the coupon, your discount will be applied to your first payment, and you can start enjoying Kartra’s features at a lower price!
 
-5. ## Understanding Kartra Pricing Plans
+ ## Understanding Kartra Pricing Plans
 
-Before we dive into the **Kartra coupon codes** and **discounts**, it’s important to understand the pricing plans Kartra offers. They have different plans to cater to businesses of all sizes, and each plan offers different features. Here's an overview of the available options:
+Before we dive into the Kartra coupon codes and discounts, it’s important to understand the pricing plans Kartra offers. They offer different plans to cater to businesses of all sizes, each with its own unique features. Here's an overview of the available options:
 
 | **Plan Name**      | **Monthly Price** | **Annual Price** | **Features**                              |
 |--------------------|-------------------|------------------|-------------------------------------------|
