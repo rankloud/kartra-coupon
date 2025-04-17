@@ -4,6 +4,9 @@ Kartra is a powerful all-in-one marketing platform, and you can make it even mor
 
 In this post, we’ll share the best Kartra coupon codes, explain how to save on your subscription, and break down the pricing plans. Plus, we’ll answer some common questions to help you get the most out of Kartra. Let’s get started! 💰
 
+![image](https://github.com/user-attachments/assets/1e52980e-51bd-4749-9bb1-2497101c45b9)
+
+
 ## Current Kartra Coupons & Discounts🛒
 
 Kartra regularly offers exciting discounts and promotional offers to help businesses save on their subscriptions. Here are the latest Kartra coupon codes that you can take advantage of:
@@ -55,6 +58,8 @@ To get all the details about each plan, including the specific features, head to
 Now, let’s explore the Kartra coupons & discounts that you can use to save some money.
 
 ## Benefits of Using Kartra Coupons & Discounts📝
+
+![image](https://github.com/user-attachments/assets/7162baf7-7e66-43de-8747-c0a3ed6f7cdc)
 
 There are many benefits to using **Kartra coupons & discounts**:
 
